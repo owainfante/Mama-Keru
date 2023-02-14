@@ -1,2 +1,0 @@
-# Mama-Keru
-Deyl
